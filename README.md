@@ -10,3 +10,6 @@ keren
 
 ## Kesan Pesan Cluster 08 Sejauh Ini 
 keren pokoknya josjis
+
+## Harapan Kuliah 
+harapan saya ingin ipk 4.00, nilai matkul A+ bisa ikut trend jj IPK, ikut organisasi semoga keterima ya amin, dan absen matkul 100% tanpa bolong. 
